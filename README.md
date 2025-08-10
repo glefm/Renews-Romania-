@@ -1,2 +1,2 @@
-# Renews-Romania
+# Renews Romania
 Stiri locale și naționale 
